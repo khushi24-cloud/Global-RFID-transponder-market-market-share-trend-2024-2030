@@ -1,0 +1,1 @@
+# Global-RFID-transponder-market-market-share-trend-2024-2030
